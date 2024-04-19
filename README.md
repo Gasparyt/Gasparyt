@@ -10,6 +10,6 @@
 Gasparyt/Gasparyt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-![A9D41227-5B06-4C61-A575-941B4328F042](https://github.com/Gasparyt/Gasparyt/assets/167488547/10298e90-bc85-4dd2-b0a6-25c99535794c)
+![D4437E52-814F-44D9-B08C-0482E12F7E14](https://github.com/Gasparyt/Gasparyt/assets/167488547/a00c953a-3d18-4564-a1a4-7592e223183b)
 
 https://www.instagram.com/gaspar_yt_?igsh=NTc4MTIwNjQ2YQ==
