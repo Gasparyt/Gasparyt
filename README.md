@@ -1,5 +1,5 @@
 - 🙋🏻‍♂️ Hi, I’m @Gasparyt
-- my github is on maintenance🤧🦦
+- my github is on🦦❤️
 
 <!---
 Gasparyt/Gasparyt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
